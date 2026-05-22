@@ -1,1 +1,1 @@
-My first readme
+why u coming fast
